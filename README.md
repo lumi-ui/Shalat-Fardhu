@@ -1,1 +1,1 @@
-# Shalat-Fardhu
+# Shalat-Sunah
